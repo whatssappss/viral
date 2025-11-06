@@ -1,0 +1,2 @@
+# viral
+https://wa.hasdukmerahputih.com/viral/
